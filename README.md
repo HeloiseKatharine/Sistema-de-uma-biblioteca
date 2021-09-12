@@ -12,4 +12,4 @@
 
 ## Professor 👨‍🏫
 
-* José de Sousa
+* José de Sousa Magalhães
